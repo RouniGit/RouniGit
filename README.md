@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Danny DOMINGUES
-- 👀 I’m interested in all the things life give to me
+- 👀 I’m interested in all the things life gave to me
 - 🌱 I’m currently learning earth science
 - 💞️ I’m looking to be a paleontologist
 - 📫 How to reach me : danny.domingues@outlook.fr
